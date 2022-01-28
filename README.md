@@ -11,7 +11,7 @@ Here is the lyrics, and the musical video is attached at the end. Have fun! <3
 \
 אני רק רוצה לספר לך איך אני מרגיש\
 חייב לגרום לך להבין\
-
+\
 לעולם לא אוותר עלייך\
 לעולם לא אאכזב אותך\
 לעולם לא ארוץ ואנטוש אותך\
@@ -71,5 +71,5 @@ Here is the lyrics, and the musical video is attached at the end. Have fun! <3
 לעולם לא אאכזב אותך\
 לעולם לא ארוץ ואנטוש אותך\
 לעולם לא אגרום לך לבכות\
-לעולם לא אגיד שלום\
+לעולם לא אגיד שלום
 
