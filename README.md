@@ -72,7 +72,7 @@ Here is the lyrics, and the musical video is attached at the end. Have fun! <3
 לעולם לא ארוץ ואנטוש אותך\
 לעולם לא אגרום לך לבכות\
 לעולם לא אגיד שלום
-
-
-
+\
+\
+\
 The official video: https://bit.ly/3D0QRz7 
