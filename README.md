@@ -73,4 +73,6 @@ Here is the lyrics, and the musical video is attached at the end. Have fun! <3
 לעולם לא אגרום לך לבכות\
 לעולם לא אגיד שלום
 
-https://bit.ly/3D0QRz7
+
+
+The official video: https://bit.ly/3D0QRz7 
