@@ -1,5 +1,7 @@
 # A Beautiful Song I Wrote
-Here is the lyrics, and the musical video is attached at the end. Have fun! <3\
+Here is the lyrics, and the musical video is attached at the end. Have fun! <3
+
+
 
 
 אנחנו לא זרים לאהבה\
